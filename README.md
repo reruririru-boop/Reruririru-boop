@@ -2,7 +2,9 @@
 
 > > > > HI! - im comfuzzle! other known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz/other
 
-i love Mai ng friens ! ^^
+i love Making friens ! ^^
+
+( please be aware that this is only a lil bit of info, more in my main acc im very sorry )
 
 = = = >  chillin playing games / resting 
 
